@@ -1,4 +1,4 @@
-# 🌟 3D Video Generator AI – Revolutionize Your Visual Storytelling! 🚀🎬
+# 🎥 Genesis 3d AI: Forget Learning to Edit, Just Let AI Do All the Work! 😜 🚀🎬
 
 Welcome to the world’s first **AI-powered platform** that lets you create stunning **3D videos with dynamic editing** – all from your browser! 🖥️✨
 
